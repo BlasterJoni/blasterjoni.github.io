@@ -1,4 +1,4 @@
 # blasterjoni.github.io
-¯\\_(ツ)_/¯
+¯\\\_(ツ)\_/¯
 
 [arvana.pt](https://blasterjoni.github.io)
