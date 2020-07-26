@@ -1,1 +1,1 @@
-github pages blasterjoni
+[Website](https://blasterjoni.github.io)
